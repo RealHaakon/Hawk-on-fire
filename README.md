@@ -1,1 +1,1 @@
-Hei, og velkommen
+Hei, og velkommen!
